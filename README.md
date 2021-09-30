@@ -22,4 +22,6 @@ Liquidz#1598
 
 <a target="_blank" href="https://www.amazon.com/gp/product/B08NMM44T5/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B08NMM44T5&linkCode=as2&tag=livefeeds-20&linkId=837e2c174d4de3489c1ce0e0cb41a640">New World: Deluxe Edition</a>
 
+https://www.amazon.com/gp/product/B08NMM44T5/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B08NMM44T5&linkCode=as2&tag=livefeeds-20&linkId=837e2c174d4de3489c1ce0e0cb41a640
+
 <a target="_blank"  href="https://www.amazon.com/gp/product/B08NMT8TLH/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B08NMT8TLH&linkCode=as2&tag=livefeeds-20&linkId=2c6fa3bcd00493a72412fdf6d714dc8a"><img border="0" src="//ws-na.amazon-adsystem.com/widgets/q?_encoding=UTF8&MarketPlace=US&ASIN=B08NMT8TLH&ServiceVersion=20070822&ID=AsinImage&WS=1&Format=_SL250_&tag=livefeeds-20" ></a>
