@@ -19,3 +19,5 @@ Heres the game itself: NEW WORLD STANDARD: https://amzn.to/3CTlipK
 
 Discord: https://discord.gg/ajh4dJb
 Liquidz#1598
+
+<a target="_blank" href="https://www.amazon.com/gp/product/B08NMM44T5/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=B08NMM44T5&linkCode=as2&tag=livefeeds-20&linkId=837e2c174d4de3489c1ce0e0cb41a640">New World: Deluxe Edition</a>
